@@ -6,3 +6,9 @@ I enjoy coding (duh) and music (listening, playing, writing, really anything)
 
 
 woah -> https://www.rit.edu/computing/department-software-engineering <- is where I go to school
+
+In this class I really want to learn how to
+- code
+- be better at code
+- work better with other code makers
+- idk find my true purpose in life
