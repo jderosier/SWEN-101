@@ -13,3 +13,6 @@ In this class I really want to learn how to
 - be better at code
 - work better with other code makers
 - idk find my true purpose in life
+
+
+how do I add pictures, uh pretend this is a picture of a brownie
